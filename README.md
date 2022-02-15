@@ -1,1 +1,1 @@
-# Alamingit247.github.io
+# Alamingit.github.io
