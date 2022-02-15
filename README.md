@@ -1,1 +1,1 @@
-wwww.alaminarafat.me
+www.alaminarafat.me
